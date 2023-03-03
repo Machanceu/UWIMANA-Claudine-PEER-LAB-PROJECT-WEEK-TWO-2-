@@ -1,2 +1,3 @@
 # UWIMANA-Claudine-PEER-LAB-PROJECT-WEEK-TWO-2-
 project2
+My name is CLAUDINE UWIMANA
